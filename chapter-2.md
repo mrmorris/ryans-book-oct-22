@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2: The Blue Chapter
 
 It was all going so well...
 
