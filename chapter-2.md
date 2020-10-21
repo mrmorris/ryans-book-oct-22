@@ -1,4 +1,4 @@
-# Chapter 2: The Blue Chapter
+# Chapter 2: The Purple Chapter
 
 It was all going so well...
 
